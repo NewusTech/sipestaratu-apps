@@ -1,1 +1,0 @@
-# sipestaratu-apps
